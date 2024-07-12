@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @LINNININ.
-- 👀 I’m interested in SRR and 921.
 - 📫 How to reach me PLANCK_20040604@163.com
 
 <!---
